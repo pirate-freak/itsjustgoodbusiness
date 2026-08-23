@@ -14,7 +14,7 @@
   .ᐟ  𐂯<img width="20" height="20" alt="tumblr_89f4006c030ed43da49141271b202687_198120af_75" src="https://github.com/user-attachments/assets/43abe7ea-a10c-4231-9d3b-92ac87750874" /><br/>
 <br/>
  <img width="20" height="20" alt="tumblr_fd2a8aa994e6ba19b7c03b5b18abcddc_c5167738_75" src="https://github.com/user-attachments/assets/574d9f98-761f-45f5-b050-8c48c44fb873" />  
-   ◜　 ♡ॱ𓏽　　17 . INTJ ₎₎<br/>
+   ◜　 ♡ॱ𓏽　　18 . INTJ ₎₎<br/>
   <br/>
  <img src="https://github.com/user-attachments/assets/70c97058-c96d-4fd5-9f07-eab51dfde66a" />
  <img src="https://github.com/user-attachments/assets/96cfa6cc-98e6-496b-af2d-dc567c0e6986" />
